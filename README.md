@@ -1,4 +1,4 @@
-### Hi there, I'm a Designer on the Site Design Team 👋
+### Hi there, I'm a Designer on the Site Design Team at GitHub 👋
 
 i love everything that has to do with product & visual design ✨
 
